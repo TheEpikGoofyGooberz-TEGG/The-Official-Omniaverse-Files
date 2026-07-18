@@ -1,0 +1,4 @@
+[OAV: TSI]
+
+> [!warning] ***THE WORLD STATE***
+> A decade after the entity known as AXIAN—the Foreigner to Everything (TFTE)—pierced the sky, Omnia rots under a perpetual system failure. Having already won a previous timeline, he used a temporary theft of Chronos-magic to drag Omnia back to the dawn of its descent, retaining the stolen Blue Flame to fuel his sadistic game. Now, the ancient elemental Titans have been overclocked to a agonizing 1000% capacity, transforming into living radar arrays that map out and exterminate the planet's remaining inhabitants across a bleeding, corrupted world state. The Blue flame in this current timeline (2nd timeline) is seen as danger now, whereas it wasn't in the first timeline because Axian didn't have it nor was it used to fuel the Titans and his Forces in that timeline, and it wasn't linked with the Infection. But in the second timeline which is the current one, it is now.
